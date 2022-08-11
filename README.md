@@ -1,4 +1,4 @@
-### Hi! I see that you're interested in my Github :eyes:
+### Hi! I see that you're interested in my Github
 
 Down below you'll find everything you need to know about me and my work
 
